@@ -5,13 +5,13 @@ Read the Docs Mcafee Activate
   :target: https://pypi.python.org/pypi/sphinx_rtd_theme
   :alt: PYPI
 .. image:: https://travis-ci.org/rtfd/sphinx_rtd_theme.svg?branch=master
-  :target: http://mcafeecomactivateretailcard.com
+  :target: https://mcafee-activate.xyz
   :alt: www.mcafee.com/activate
 .. image:: https://travis-ci.org/rtfd/sphinx_rtd_theme.svg?branch=master
-  :target: http://mcafeecomactivateretailcard.com
+  :target: https://mcafee-activate.xyz
   :alt: www.mcafee.com/activate total protection
 .. image:: https://travis-ci.org/rtfd/sphinx_rtd_theme.svg?branch=master
-  :target: http://mcafeecomactivateretailcard.com
+  :target: https://mcafee-activate.xyz
   :alt: mcafee activate
 .. image:: https://img.shields.io/pypi/l/sphinx_rtd_theme.svg
   :target: https://pypi.python.org/pypi/sphinx_rtd_theme/
@@ -38,9 +38,9 @@ or business network security you willl get 25 character alphanumeric activation 
 will receive on the registered Email id.
 
 
-`mcafee activate <http://mcafeecomactivateretailcard.com>`__.
+`mcafee activate <https://mcafee-activate.xyz/>`__.
 
-`mcafee com activate <http://mcafeecomactivateretailcard.com>`__.
+`mcafee com activate <https://mcafee-activate.xyz/>`__.
 
 Mcafee Activate Total Protection
 ============
@@ -53,13 +53,13 @@ website mcafee activate then put your mcafee product key in the container and al
 password etc.
 
 
-`www.mcafee.com/activate total protection <http://mcafeecomactivateretailcard.com>`__.
+`www.mcafee.com/activate total protection <https://mcafee-activate.xyz/>`__.
 
-`www.mcafee.com/activate <http://mcafeecomactivateretailcard.com>`__.
+`www.mcafee.com/activate <https://mcafee-activate.xyz/>`__.
 
-`mcafee.com/activate <http://mcafeecomactivateretailcard.com>`__.
+`mcafee.com/activate <https://mcafee-activate.xyz/>`__.
 
-`Mcafee Activate  <http://mcafeecomactivateretailcard.com>`__.
+`Mcafee Activate  <https://mcafee-activate.xyz/>`__.
 
 McAfee Internet Security provides trusted antivirus and identity safety for your computers/Personal computers or laptop 
 computers, smartphones and tablets. So, you can search, bank, and shop securely with all of the essentials like safe web 
@@ -70,16 +70,16 @@ and do the job of scanning the Malware virus threats but if you want any special
 the varieties of products McAfee offers, most of the users only go for the Internet Security.
 
 
-`www.mcafee.com/mav/retailcard <https://mcafeecomactivateretailcard.com/www-mcafee-com-mav-retailcard/>`__.
+`www.mcafee.com/mav/retailcard <https://mcafee-activate.xyz/>`__.
 
-`www.mcafee.com/mis/retailcard <https://mcafeecomactivateretailcard.com/www-mcafee-com-mis-retailcard>`__.
+`www.mcafee.com/mis/retailcard <https://mcafee-activate.xyz/>`__.
 
-`www.mcafee.com/mtp/retailcard <https://mcafeecomactivateretailcard.com/www-mcafee-com-mtp-retailcard/>`__.
+`www.mcafee.com/mtp/retailcard <https://mcafee-activate.xyz/>`__.
 
-`www.mcafee.com/mls/retailcard <https://mcafeecomactivateretailcard.com/www-mcafee-com-mls-retailcard/>`__.
+`www.mcafee.com/mls/retailcard <https://mcafee-activate.xyz/>`__.
 
-`www.mcafee.com/dellactivation <https://mcafeecomactivateretailcard.com/www-mcafee-com-dellactivation/>`__.
+`www.mcafee.com/dellactivation <https://mcafee-activate.xyz/>`__.
 
-`www.mcafee.com/activatedell <https://mcafeecomactivateretailcard.com/www-mcafee-com-dellactivation/>`__.
+`www.mcafee.com/activatedell <https://mcafee-activate.xyz/>`__.
 
-https://mcafeecomactivateretailcard.com
+https://mcafee-activate.xyz/
